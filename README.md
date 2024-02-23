@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Michal
+- 👀 I’m interested in swords
+- 🌱 I’m currently learning how to weaponize my abnormality 
+- 💞️ I’m looking to collaborate on surviving this (optional)
+- 📫 How to reach me ...
+- 😄 Pronouns: he/they/knock yourself out
+- ⚡ Fun fact: inertia is the first law of Newtonian mechanics. It affects all of us and we can't fight it without an external force
